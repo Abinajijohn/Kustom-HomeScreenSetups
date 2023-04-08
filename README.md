@@ -1,2 +1,2 @@
 # Kustom Wallpapers
- diffrent variations of KLWP AND KWGT Presets
+ diffrent variations of KLWP Presets
